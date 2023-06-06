@@ -1,5 +1,5 @@
 Somab
 Qudus
-Rolake
+Ikimot
 Anjola
 Sekinat
